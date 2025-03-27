@@ -1,4 +1,4 @@
-hello! im EMP-REPACKS i'm one idiot trying to join the piracy world mostly to make games i can play with mates on school computers!
+Hello! im EMP-REPACKS i'm one idiot trying to join the piracy world mostly to make games i can play with mates on school computers!
 
 For support or to suggest game repacks you can contact me on twitter @Dramallamaabc
 
